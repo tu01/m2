@@ -1,11 +1,14 @@
 2017年7月网门简易二维码（14张）
 
-下载长网址:https://github.com/tu01/m
-下载短网址:https://git.io/vQ6MT
+预览下载长网址:https://github.com/tu01/m
+
 mega网盘下载：https://mega.nz/#F!7J4QXYpA!FMU83cae5WWbb5NlWxKj7w
  
 2017年7月网门二维码（海报风格10张）
-https://mega.nz/#F!TYADFbjL!VoD0TMAu9H2Dgg5vlRdtDw
+
+预览下载网址：https://github.com/tu01/m2
+
+mega网盘下载： https://mega.nz/#F!TYADFbjL!VoD0TMAu9H2Dgg5vlRdtDw
 
 <table>
   <tr>
