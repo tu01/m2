@@ -14,6 +14,8 @@ mega网盘下载： https://mega.nz/#F!TYADFbjL!VoD0TMAu9H2Dgg5vlRdtDw
 
 预览下载网址：https://git.io/vQPmB
 
+mega网盘下载：https://mega.nz/#F!SR51XDbC!hNYwbodRNIM7fGOqLDAOkQ
+
 <table>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/tu2017/tu/master/201707网门二维码1.jpg" /></td>
