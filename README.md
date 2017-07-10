@@ -1,6 +1,6 @@
 1、2017年7月网门二维码（简约风格）（14张）
 
-预览下载长网址:https://git.io/vQinQ
+预览下载长网址:https://git.io/vQPE3
 
 mega网盘下载：https://mega.nz/#F!7J4QXYpA!FMU83cae5WWbb5NlWxKj7w
  
